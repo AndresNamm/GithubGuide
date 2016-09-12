@@ -1,1 +1,1 @@
-ssSa oled munn   ### Ära unusta pärast mune lakkuda
+ise oled väike värdjas
